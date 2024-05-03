@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chhabraalisha71
-- 👀 I’m interested in codig
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning MSC Business Analytics
 
 
